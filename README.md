@@ -1,4 +1,3 @@
-![tumblr_4c5f667f6025473ade40a342f34b269a_0668ed86_540](https://github.com/user-attachments/assets/eaa23ada-113e-4898-987b-9f69aede75d4)
 
                              hi umm i am clown. heh....he/him...
                           read strawpage for more 😳
