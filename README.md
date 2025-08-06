@@ -3,6 +3,5 @@ me turning into sasuke
 
 [strawpage masterlist](https://clownywowny.straw.page/) ( ˶ˆᗜˆ˵ )‎‎‎‎ [atabook](https://itafushi.atabook.org) ( ˶ˆᗜˆ˵ )
 
-sasuke: it's been too long, right? naruto.
-naruto: s-s-sasuke?
-![naruto_meets_sasuke_by_strijing987_d5pwb22-fullview](https://github.com/user-attachments/assets/d7a98d15-37b8-4212-a571-0559268a9bb4)
+<img width="840" height="718" alt="what" src="https://github.com/user-attachments/assets/bd70fc22-d683-4fd3-9c2a-4ecfb29d4b40" />
+
