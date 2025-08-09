@@ -5,3 +5,5 @@ me turning into sasuke
 
 <img width="840" height="718" alt="what" src="https://github.com/user-attachments/assets/bd70fc22-d683-4fd3-9c2a-4ecfb29d4b40" />
 
+![pony-town-minecraft skin-stand-blinking-bg-padded-4x (1)](https://github.com/user-attachments/assets/4138801b-d08b-486b-b0dd-fe267b896bca) me irl ok? be kind ok?
+
