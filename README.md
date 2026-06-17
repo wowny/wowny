@@ -5,5 +5,3 @@ me turning into sasuke
 
 <img width="353" height="271" alt="hey there" src="https://github.com/user-attachments/assets/58ce5ec7-8154-4580-849b-c9f137231787" /> <img width="293" height="277" alt="kawaii" src="https://github.com/user-attachments/assets/5b13ecc9-43cd-44db-8c0c-a9ef4ee7b71d" />
 
-
-<img width="600" height="339" alt="kyle" src="https://github.com/user-attachments/assets/828fdd70-375c-4055-893d-f883f3c7a65d" /> who dis.
