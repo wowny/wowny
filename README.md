@@ -1,4 +1,5 @@
-<img width="800" height="777" alt="disgrace" src="https://github.com/user-attachments/assets/24bbb34e-ddd0-4d32-823c-513286a05b51" />
+<img width="700" height="686" alt="disgrace" src="https://github.com/user-attachments/assets/65a28a41-7207-4e47-a68d-bd8d1af61689" />
+
 
 ( ˶ˆᗜˆ˵ )‎‎‎‎ [atabook](https://uchiha.atabook.org) ( ˶ˆᗜˆ˵ ) [RENTRRY!!!!!!](https://rentry.co/bodyflicker) (click ok? u wont regret?) ( ˶ˆᗜˆ˵ )
 
